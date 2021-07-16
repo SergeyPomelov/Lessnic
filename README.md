@@ -1,0 +1,1 @@
+A real pro with 8 years of extensive [experience](https://www.linkedin.com/in/spomelov/) in architecture, design, dev. team business processes and collaborations and development of distributed high loaded web applications.
